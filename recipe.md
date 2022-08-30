@@ -1,3 +1,16 @@
+INGREDIENTS
+* 100 g Almond flour
+* 100 g white flour
+* 200 g coconut oil
+* 200 ml Maple syrup
+* 60 g Cacao
+* 1 tbsp Vanilla
+* 200 g Beetroot cooked
+* 1 tbsp baking powder
+* Choc mousse
+* 200 g dark Choc
+* 150 ml boiling water
+
 INSTRUCTIONS
 1. Melt the coconut oil in a saucepan over medium heat.
 2. Preheat oven to 180 degrees
